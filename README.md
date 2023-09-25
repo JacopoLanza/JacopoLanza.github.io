@@ -1,2 +1,0 @@
-# jacopolanza.github.io
-Qualcosa
